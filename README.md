@@ -5,3 +5,6 @@ My internship at The Prodigy Infotech Online recently concluded, spanning a dura
 INTERSHIP DURATION: 1 MONTHS [01 Dec - 31 Dec 2024]
 
 MODE: ONLINE
+
+OFFER LETTER:-
+![OfferLetter](https://github.com/user-attachments/assets/f7ec76d1-0ceb-4294-8eb1-569cb4116faa)
